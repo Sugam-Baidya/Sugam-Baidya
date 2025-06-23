@@ -38,7 +38,7 @@
 
 - 📧 Email: [sugambd@gmail.com]  
 - 🌐 Portfolio: [https://sugamb.com.np/]
-- 🔗 LinkedIn: [linkedin.com/in/sugam-baidya](www.linkedin.com/in/sugam-baidya)
+- 🔗 LinkedIn: [linkedin.com/in/sugam-baidya]
 
 ---
 
